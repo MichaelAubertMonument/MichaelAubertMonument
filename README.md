@@ -1,1 +1,1 @@
-I lead the Android team at Monument Bank https://monument.co
+I lead the Android team at Monument Bank https://www.monument.co
